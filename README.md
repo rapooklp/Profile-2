@@ -46,6 +46,7 @@ Aluta Continua!!!
 
 
 
+![WhatsApp Image 2024-02-28 at 11 07 34](https://github.com/rapooklp/Profile-2/assets/162428712/210435f1-e366-4b9f-a225-e62e7b6ce5de)
 
 
 
