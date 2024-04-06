@@ -33,11 +33,19 @@ I'm Kgomotso Rapoo from South Africa, and currently I am learning Complete Data 
 - ⚡ Fun fact: I take pictures for fun and coding makes me happy 
 ## Favourite qoute 
 ### "Associate with people who are likely to improve you, welcome those whom you are capable of improving, the process is a mutual one because people learn as they teach."
-by a Stoic called Seneca
+By a Stoic Called Seneca 
+
+## A man must
+- Learn
+- Adapt
+- Evolve
+### Then Repeat Again.
+
+Aluta Continua!!! 
 ![1_vU7TJxicKlZpW-uRzVNFcA](https://github.com/rapooklp/Profile-2/assets/162428712/93411380-3852-4213-89cd-5e38aa79a99c)
+![]
 
 
-![]()
 
 
 
